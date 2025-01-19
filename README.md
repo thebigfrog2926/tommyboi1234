@@ -1,4 +1,3 @@
-who are you fake frog
-why u copy me woth the 2926 dude that was like my entire social identity
-please change dude i treasure my user whyyyyyyyyyy 🖕😭
-my bad
+who are you very real forg
+please teach me your ways you are so handsome
+and so cool
